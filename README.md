@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Naveen N
-- 📫 Reach me ...naveen.kumar@kavida.ai
+- 📫 Reach me ...naveen.kumar@qad.com
 - 😄 Checkout: ...https://naveenkumar1405.github.io/
